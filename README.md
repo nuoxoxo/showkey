@@ -1,1 +1,1 @@
-## "Sitting in the Dschungel on Nürnberger Strasse."&nbsp; - David Bowie
+# "Sitting in the Dschungel on Nürnberger Strasse."
